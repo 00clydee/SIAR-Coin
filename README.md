@@ -1,1 +1,1 @@
-# SiEu-Coin
+# SIAR-Coin
